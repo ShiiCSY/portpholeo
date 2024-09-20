@@ -42,7 +42,7 @@ This should be a link [link](https://shiicsy.github.io/portpholeo/)
 
 ### Contact information:
 
-reach out to me via:
+reach out via: [shihyic2@illinois.edu](shihyic2@illinois.edu)
 
 <strong>do not contact me!!!</strong>
 
